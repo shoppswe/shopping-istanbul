@@ -4,7 +4,7 @@ To visit Istanbul and not to stroll through the local shops and not buy a new th
 
 The distinctive Istanbul is one of the centers of world trade. Do you remember the well-known path "from the Varangians to the Greeks" or "shuttle business" in the 90s (when people with a tourist visa in their hands travel to foreign countries and sell a variety of goods)? In both cases, it was the Turks who discovered the world of trade. Russians mainly bought clothes in the Turkish region of Laleli.
 
- ![Branching] (790_593_1.jpg)
+![Branching] (790_593_1.jpg)
 
 ### Invaluable Istanbul Shopping Tips
 
@@ -20,4 +20,4 @@ The Festival will run from June 30 to July 17, 2020. This is the largest event o
 More about Istanbul Shopping Festival
 The famous tulip festival in 2020 is scheduled from 9 to 30 April. The tulip is a symbol of the country; about two thousand varieties of this flower grow here. What makes the event special is that all tourists are given free tulip bulbs. As you might guess, most of the city's guests are florists, florists and breeders from all over the world.
 
- ![Branching] (790_5956_1.jpg)
+![Branching] (790_5956_1.jpg)
